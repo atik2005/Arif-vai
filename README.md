@@ -1,2 +1,0 @@
-# Arif-vai
-Wingo signal
